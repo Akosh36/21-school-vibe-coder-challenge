@@ -1,0 +1,1 @@
+# 21-school-vibe-coder-challenge
